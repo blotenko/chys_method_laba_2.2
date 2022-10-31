@@ -1,0 +1,1 @@
+# chys_method_laba_2.2
